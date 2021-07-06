@@ -1,5 +1,5 @@
 # B E L A M C A N D A
 ## A technology company
 
-[belamcanda@protonmail.com](contact)
+[contact](belamcanda@protonmail.com)
 
