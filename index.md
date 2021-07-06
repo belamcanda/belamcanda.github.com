@@ -3,5 +3,4 @@
 
 belamcanda@protonmail.com
 
-[contact](belamcanda@protonmail.com)
 
